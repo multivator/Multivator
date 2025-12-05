@@ -23,7 +23,8 @@
 <p align="center"> if you do not know an alter , dont expect them to know you or be kind.
 
 ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
-<p align="center"> we remember certain people and will approach them, if not and you want to get to know us/the alter , please approach them first. Many of us dont like meeting new people.
+<p align="center"> we remember certain people and will approach them, if not and you want to get to know us/the alter , please approach them first. Many of us will not approach first.
+> <p align="center"> INTROVERTS!! HAHH.. sorry..
 
 
 ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
