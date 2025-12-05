@@ -1,4 +1,4 @@
-p<p align="center" ><img src="https://media.tenor.com/7HBboAgs1cUAAAAM/elevator.gif " width="1000"></p>
+<p align="center" ><img src="https://media.tenor.com/7HBboAgs1cUAAAAM/elevator.gif " width="1000"></p>
 
 
 # <p align="center" >"come aboard on the elevator!" </p>
@@ -19,6 +19,7 @@ p<p align="center" ><img src="https://media.tenor.com/7HBboAgs1cUAAAAM/elevator.
 > <p align="center"> this github is meant for alters who dont have github!
 
 
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 <p align="center"> if you do not know an alter , dont expect them to know you or be kind.
 
 ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
