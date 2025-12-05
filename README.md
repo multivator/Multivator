@@ -51,7 +51,7 @@
   spoopy</a>
   <a href="https://github.com/rainy-chaos-sys">
   what a chaotic sys!</a>
-  <a href="https://github.com/Canibalistic-ways-of-life">
+  <a href="https://github.com/Cannibalistic-ways-of-life">
   sallyface(host)</a>
 <br> whis if want t be removed!! </br>
   
