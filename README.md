@@ -41,7 +41,7 @@
 ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 </details>
    <details>
-        <summary> <td>$${\color{#FFFFFF}\verb|friendpreciation|}$$</td></summary>
+        <summary> <td>$${\color{#FFFFFF}\verb|friendpreciation ~ host|}$$</td></summary>
   <a href="https://github.com/willbylerr">
   wife</a> <a href="https://github.com/GONTIER">
   adam oke.. </a>
