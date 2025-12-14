@@ -77,5 +77,28 @@
 ![1000022146](https://github.com/user-attachments/assets/0628d36a-5909-460b-919f-02bda7a82da1)
 
 
-⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀
+
+# <p align="center" > fandoms <3
+
+1. Dandys world
+2. Regretavator
+3. Yandere sim
+4. SL / sister loc
+5. FNAF - afton family & missing kids, rarely amimatronics.
+6. OMORI - barely any alters
+7. bfdi - barely also
+8. II - inaminate insanity, rare
+9. DDLC - DokiDokiLiteratureClub, rare
+10. Sallyface - 2 FICTS I THINK.?
+11. Nso - needystreameroverload, 2 ficts also..??
+12. Stranger Things - rare
+13. TAWOG / TWWWOG - MANY AAYYAYAA
+14. Undertale - no comment 
+15. Gravity Falls - rare
+16. MY LITTLE PONY! - MANY MANY FICTS AND I LOVE THEM ALLL AAAAA
+
+![](https://upload.wikimedia.org/wikipedia/en/f/f1/My_little_pony_friendship_is_magic_group_shot_r.png) 
+
+⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 > <p align="center"> ~ written by tedd 
