@@ -112,6 +112,6 @@ bublgum-🌈🧠
 <a href="https://github.com/sillylo">
   Buttershy!! </a>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀
-<a href="https:://ditzodoo.straw.page">
+<a href="https://ditzodoo.straw.page/">
   DITZY'S STRAW</a>⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 > <p align="center"> ~ written by tedd 
