@@ -105,11 +105,13 @@ bublgum-🌈🧠
 
 ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 
-# altrs that have github
+# altrs that have info stufd - sp/gh
 
 > these are the only ones so far.
 
 <a href="https://github.com/sillylo">
   Buttershy!! </a>
-⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
+⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀
+<a href="https:://ditzodoo.straw.page">
+  DITZY'S STRAW</a>⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 > <p align="center"> ~ written by tedd 
