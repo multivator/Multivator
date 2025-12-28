@@ -40,12 +40,25 @@
 <p align="center"> "i hate you" or "im leaving you" jokes.
 
 
-
+⠀⠀⠀⠀⠀
 <p align="center"> our current active fronters are : Buttershy- 🦋
 bublgum-🌈🧠
 
 ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
-# ⚠️⚠️ ⠀HIGHLY SATURATED IMAGE B-LOW!! ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
+
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
+
+# altrs that have info stufd - sp/gh
+
+> these are the only ones so far.
+
+<a href="https://github.com/sillylo">
+  Buttershy!! </a>⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀
+<a href="https://ditzodoo.straw.page/"> Ditzy Doo Strawpage </a>
+a>
+ 
+ ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
 </details>
    <details>
         <summary> <td>$${\color{#FFFFFF}\verb|friendpreciation ~ host|}$$</td></summary>
